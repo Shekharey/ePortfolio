@@ -1,2 +1,2 @@
 # ePortfolio
-1. Exolain communication concept and strategies
+1. Explain communication concept and strategies
