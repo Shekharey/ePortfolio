@@ -4,7 +4,7 @@
 2. Show confidence and skills in oral communications and presentations.
  - I am still working on my presentation will upload once i am done with it.
 3. Work effectively as part of a team.
- - In week 6 we did mob writing in which we had to team up with two other classmates and solve the given questions which was a mostly about teamwork. [Mob Writing](Week 6 ICT.docx)
+ - In week 6 we did mob writing in which we had to team up with two other classmates and solve the given questions which was a mostly about teamwork.
 4. Communicative effectively in a professional context.
  -
 5. Define and demonstrate conflict management and resolution strategies.
