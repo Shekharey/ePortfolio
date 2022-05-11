@@ -10,5 +10,5 @@ Shekhar Sharma (12134685)
 4. Communicative effectively in a professional context.
  - No evidence provided.
 5. Define and demonstrate conflict management and resolution strategies.
- - In week 5 of COIT11239  we did confilct management and resolution strategies where along with one other classmate and complete the senario. [Week5 Conflict Scenario .docx](https://github.com/Shekharey/ePortfolio/files/8666460/Week5.Conflict.Scenario.1.docx)
+ - In week 5 of COIT11239  we did confilct management and resolution strategies where along with one other classmate and complete the senario. [Week5 Conflict Scenario.docx](https://github.com/Shekharey/ePortfolio/files/8666460/Week5.Conflict.Scenario.1.docx)
 
